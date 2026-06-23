@@ -1,0 +1,1 @@
+# ShopEZ-Stock-Platform
